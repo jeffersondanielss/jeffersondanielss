@@ -6,6 +6,6 @@
 
 ### Find me elsewhere 🌎
 
-🚀 [Site](https://jeffersondaniel.com) <br>
+🚀 [Site](http://jeffersondaniel.com) <br>
 📸 [Instagram](https://instagram.com/jeffersondanielss) <br>
 💼 [LinkedIn](https://www.linkedin.com/in/jeffersondanielss) <br>
